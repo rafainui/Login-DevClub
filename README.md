@@ -58,7 +58,7 @@ Este projeto me ajudou a consolidar conhecimentos de:
 
 ## 🤝 Contato
 
-📧 rafael.seuemail@email.com  
+📧 contato.rafainui@gmail.com  
 🔗 [LinkedIn - Rafael (Clique aqui)](https://www.linkedin.com/in/rafael-inui/)
 
 ---
